@@ -1,10 +1,5 @@
 ## HI!!! WERE ZOMBIKITTY, AN OSDD -1B SYSTEM !!
 
-<!--
-**zombikitty/zombikitty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 ! - OUR SYSTEM HOST AND COHOST ARE JIMMY + CURLY!!! ^_^
 
 --------------------------------------------------------
@@ -29,4 +24,10 @@ DNI.
 
 OUR STRAWPAGE HAS MUCH MORE INFORMATION ON THINGS!! ^_^
 AND OUR DISCORD IS .zombikitty !!!
+<!--
+**zombikitty/zombikitty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+Here are some ideas to get you started:
+
+
 -->
