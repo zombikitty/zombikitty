@@ -3,6 +3,7 @@
 ## HI!!! WERE ZOMBIKITTY, AN OSDD -1B SYSTEM !!
 
 ! - OUR SYSTEM HOST AND COHOST ARE JIMMY + CURLY!!! ^_^
+
 ![image_2025-02-20_150112719](https://github.com/user-attachments/assets/001462fb-78b7-4311-a1f4-88cb7c1c759f)
 
 
