@@ -31,6 +31,9 @@ OUR STRAWPAGE HAS MUCH MORE INFORMATION ON THINGS!! ^_^
 
 AND OUR DISCORD IS .zombikitty !!!
 
+
+
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v74xrdgiha5cc6je6xdu6rzkxm&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color=79586d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <!--
 **zombikitty/zombikitty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
