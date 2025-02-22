@@ -23,16 +23,6 @@ BYI
 
 DNI.
 
-! - Proshitters
-
-! - Darkshippers
-
-! - Pedophiles
-
-! - Homophobics / Transphobics
-
-! - Racist people
-
 ! - if anything we'll just block u if we dont like u lmao
 
 ---------------------------------------------------------
