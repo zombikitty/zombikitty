@@ -1,4 +1,4 @@
-
+![](https://komarev.com/ghpvc/?username=zombikitty&color=grey)
 
 ## HI!!! WERE ZOMBIKITTY, AN OSDD -1B SYSTEM !!
 
