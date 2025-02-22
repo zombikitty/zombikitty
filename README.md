@@ -10,6 +10,7 @@
 --------------------------------------------------------
 
 BYI
+
 ! - Some of us have a hard time holding up a conversation, so please be aware of that ! we dont mean to offend anyone, were just really bad at interacting.!
 
 ! - Majority of us make kms/kys jokes, and we forget to use tonetags! please let us know if you need us to use them !
