@@ -30,7 +30,7 @@ DNI.
 
 OUR STRAWPAGE HAS MUCH MORE INFORMATION ON THINGS!! ^_^
 
-🟢(online): Ontab, most likely with friends, but when alone feel free to c+h ^_^
+🟢(online): busy with friends, when there is no friends near us feel free to come on over and int!
 
 🌙(away): either offtab or ontab, if there isnt a response dont be shy to whisper to us to get us ontab :3 
 
