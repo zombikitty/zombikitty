@@ -26,6 +26,8 @@ DNI.
 
 ! - if anything we'll just block u if we dont like u lmao
 
+! - most evil daisuke fans.
+
 ---------------------------------------------------------
 
 OUR STRAWPAGE HAS MUCH MORE INFORMATION ON THINGS!! ^_^
