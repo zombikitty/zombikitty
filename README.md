@@ -31,9 +31,13 @@ DNI.
 OUR STRAWPAGE HAS MUCH MORE INFORMATION ON THINGS!! ^_^
 
 dnd; offtab, busy.
+
 away; either offtab or ontab, feel free to int
+
 online; int freely!
+
 lf chat; Feel free to int, or cud ^_^
+
 lf rp; literally never have this as our status so uhh
 
 AND OUR DISCORD IS .zombikitty !!!
