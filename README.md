@@ -30,15 +30,15 @@ DNI.
 
 OUR STRAWPAGE HAS MUCH MORE INFORMATION ON THINGS!! ^_^
 
-dnd; offtab, busy.
+🟢(online): Ontab, most likely with friends, but when alone feel free to c+h ^_^
 
-away; either offtab or ontab, feel free to int
+🌙(away): either offtab or ontab, if there isnt a response dont be shy to whisper to us to get us ontab :3 
 
-online; int freely!
+⛔(busy): dniuf, most likely not feeling up to socialise.
 
-lf chat; Feel free to int, or cud ^_^
+💬(looking for chat): Feel free to interact! ^^
 
-lf rp; literally never have this as our status so uhh
+🎭(looking for roleplay): usually never use this, and probably never will.
 
 AND OUR DISCORD IS .zombikitty !!!
 
