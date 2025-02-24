@@ -32,6 +32,10 @@ DNI.
 
 ---------------------------------------------------------
 
+we love mouthwashing, grocery gang, phighting, supernatural, murder drones, and OUR FRIENDS WE LOVE OUR FRIENDS!!!/p
+
+--------------------------------------------------------
+
 OUR STRAWPAGE HAS MUCH MORE INFORMATION ON THINGS!! ^_^
 
 🟢(online): busy with friends, when there is no friends near us feel free to come on over and int!
