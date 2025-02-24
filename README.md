@@ -4,6 +4,8 @@
 
 ! - OUR SYSTEM HOST AND COHOST ARE JIMMY + CURLY!!! ^_^
 
+IF U SEE ME SITTING WITH AN ANYA THATS MY FRIEND I DO NOT SHIP JIMMY X ANYA WHAT! -Jimmy
+
 ![image_2025-02-20_150112719](https://github.com/user-attachments/assets/001462fb-78b7-4311-a1f4-88cb7c1c759f)
 
 
