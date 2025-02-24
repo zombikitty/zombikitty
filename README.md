@@ -26,7 +26,7 @@ BYI
 
 DNI.
 
-! - if anything we'll just block u if we dont like u lmao
+! - dont really have a dni, we just block freely.
 
 ! - most evil daisuke fans.
 
