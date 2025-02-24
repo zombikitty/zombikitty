@@ -42,7 +42,7 @@ OUR STRAWPAGE HAS MUCH MORE INFORMATION ON THINGS!! ^_^
 
 🌙(away): either offtab or ontab, if there isnt a response dont be shy to whisper to us to get us ontab :3 
 
-⛔(busy): dniuf, most likely not feeling up to socialise.
+⛔(busy): dniuf, most likely not feeling up to socialise, or afk.
 
 💬(looking for chat): Feel free to interact! ^^
 
