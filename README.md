@@ -68,7 +68,7 @@ AND OUR DISCORD IS .zombikitty !!!
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v74xrdgiha5cc6je6xdu6rzkxm&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=823a3a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-![image](https://github.com/user-attachments/assets/678e25e6-c6b9-46f6-8ebf-bdedf1e2472c)
+![image](https://github.com/user-attachments/assets/678e25e6-c6b9-46f6-8ebf-bdedf1e2472c)![image](https://github.com/user-attachments/assets/678e25e6-c6b9-46f6-8ebf-bdedf1e2472c)![image](https://github.com/user-attachments/assets/678e25e6-c6b9-46f6-8ebf-bdedf1e2472c)
 
 <!--
 **zombikitty/zombikitty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
