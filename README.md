@@ -23,7 +23,7 @@ Boundaries!
 
 - Sometimes we might not remember you. that is because we are a different alter, possibly. If we dont remember, just give us a whisper to let us know.
 
-![image](https://github.com/user-attachments/assets/f569da84-bec9-4fb6-804e-0297236a1e3c)
+![image](https://github.com/user-attachments/assets/f569da84-bec9-4fb6-804e-0297236a1e3c) ![image](https://github.com/user-attachments/assets/f569da84-bec9-4fb6-804e-0297236a1e3c)
 
 DNI (do not interact) list
 
