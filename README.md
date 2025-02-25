@@ -9,7 +9,7 @@ Current host is Jimmy
 
 Feel free to int unless dni
 
-01:23[sign atabook. syshost] thinks: 01:17[sign atabook. syshost] thinks: lsoer
+01:17[sign atabook. syshost] thinks: lsoer
 
 
 01:17[Moxxiee (C+H!) AFK] LMAO DYSLECIX
