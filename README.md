@@ -1,28 +1,31 @@
+![image](https://github.com/user-attachments/assets/18b2b03c-f1b0-481f-ad8b-fd298ecd986b)
+
+
 ![](https://komarev.com/ghpvc/?username=zombikitty&color=grey)
 
-## HI!!! WERE ZOMBIKITTY, AN OSDD -1B SYSTEM !!
+We're collectively known as zombikitty, if you are unsure on whos fronting dont be afraid to ask, or just call us zombi we dont rlly care lmao
 
-! - OUR SYSTEM HOST AND COHOST ARE JIMMY + CURLY!!! ^_^
+Current host is Jimmy
 
-IF U SEE ME SITTING WITH AN ANYA THATS MY FRIEND I DO NOT SHIP JIMMY X ANYA WHAT! -Jimmy
-
-![image_2025-02-20_150112719](https://github.com/user-attachments/assets/001462fb-78b7-4311-a1f4-88cb7c1c759f)
+Feel free to int unless dni
 
 
---------------------------------------------------------
-
-BYI
-
-! - Some of us have a hard time holding up a conversation, so please be aware of that ! we dont mean to offend anyone, were just really bad at interacting.!
-
-! - Majority of us make kms/kys jokes, and we forget to use tonetags! please let us know if you need us to use them !
-
-! - We get attached to people if we frequently talk, (sometimes!) ! we dont mean to, we promise !!
-
-! - We get anxious / stressed really easily! pressuring us to do something will result in ghosting or a block ^_^
+![image](https://github.com/user-attachments/assets/7572b4e8-5b30-4489-bf6a-7240d477ebb7)
 
 
---------------------------------------------------------
+Boundaries!
+
+- We sometimes make freaky jokes, it is never intended to harm anyone.
+
+- We have attachment issues. It isnt too bad, but at a point it can.
+
+- We make kys/kms jokes, and sometimes forget tonetags. if you are an idividual who needs tonetags, please let us know before-hand.
+
+- Sometimes we might not remember you. that is because we are a different alter, possibly. If we dont remember, just give us a whisper to let us know.
+
+![image](https://github.com/user-attachments/assets/e6eb1f92-63d4-4a8e-8caf-4e650700a85c) ![image](https://github.com/user-attachments/assets/16dc1b0a-2f7e-40ea-a87c-07e241fdabb1)
+
+
 
 DNI.
 
