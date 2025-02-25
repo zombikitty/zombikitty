@@ -1,7 +1,7 @@
 ![image](https://github.com/user-attachments/assets/18b2b03c-f1b0-481f-ad8b-fd298ecd986b)![image](https://github.com/user-attachments/assets/18b2b03c-f1b0-481f-ad8b-fd298ecd986b)![image](https://github.com/user-attachments/assets/18b2b03c-f1b0-481f-ad8b-fd298ecd986b)
 
 
-![](https://komarev.com/ghpvc/?username=zombikitty&color=grey)
+![](https://komarev.com/ghpvc/?username=zombikitty&color=ff69b4&label=♡)
 
 We're collectively known as zombikitty, if you are unsure on whos fronting dont be afraid to ask, or just call us zombi we dont rlly care lmao
 
