@@ -23,21 +23,31 @@ Boundaries!
 
 - Sometimes we might not remember you. that is because we are a different alter, possibly. If we dont remember, just give us a whisper to let us know.
 
-![image](https://github.com/user-attachments/assets/e6eb1f92-63d4-4a8e-8caf-4e650700a85c) ![image](https://github.com/user-attachments/assets/16dc1b0a-2f7e-40ea-a87c-07e241fdabb1)
+![image](https://github.com/user-attachments/assets/f569da84-bec9-4fb6-804e-0297236a1e3c)
+
+DNI (do not interact) list
+
+We dont have a proper dni, we just block freely if we dislike you.
+
+![image](https://github.com/user-attachments/assets/c63a8402-b55c-451d-a509-f58be5e82fd0)
 
 
+Some of our interests;
 
-DNI.
+- Mouthwashing.
 
-! - dont really have a dni, we just block freely.
+- Grocery Gang
 
-! - most evil daisuke fans.
+- Forsaken
 
----------------------------------------------------------
+- Pressure
 
-we love mouthwashing, grocery gang, phighting, supernatural, murder drones, and OUR FRIENDS WE LOVE OUR FRIENDS!!!/p
+- Gorillaz
 
---------------------------------------------------------
++ more
+
+![image](https://github.com/user-attachments/assets/641086f7-fd4c-418d-8082-7816f856fa14)
+
 
 OUR STRAWPAGE HAS MUCH MORE INFORMATION ON THINGS!! ^_^
 
@@ -57,6 +67,9 @@ AND OUR DISCORD IS .zombikitty !!!
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v74xrdgiha5cc6je6xdu6rzkxm&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=823a3a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+![image](https://github.com/user-attachments/assets/678e25e6-c6b9-46f6-8ebf-bdedf1e2472c)
+
 <!--
 **zombikitty/zombikitty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
