@@ -5,7 +5,7 @@
 
 We're collectively known as zombikitty, if you are unsure on whos fronting dont be afraid to ask, or just call us zombi we dont rlly care lmao
 
-Current host is Jimmy
+Current host is Jimmy,, current co-host(s) are currently varying between 6 and Curly.
 
 Feel free to int unless dni
 
