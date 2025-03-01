@@ -1,9 +1,8 @@
-![image](https://github.com/user-attachments/assets/26a1e2ba-e6ee-4b7c-b073-0880ffe90cd6)![image](https://github.com/user-attachments/assets/53806428-4cb3-453d-a71f-ad5d95b15fff)
+![image](https://github.com/user-attachments/assets/26a1e2ba-e6ee-4b7c-b073-0880ffe90cd6)
 
 
 
-
-![](https://komarev.com/ghpvc/?username=zombikitty&color=ff69b4&label=♡)
+![](https://komarev.com/ghpvc/?username=zombikitty&color=2d2d2d2d&label=♡)
 
 We're collectively known as zombikitty, if you are unsure on whos fronting dont be afraid to ask, or just call us zombi we dont rlly care lmao
 
@@ -17,7 +16,8 @@ Feel free to int unless dni
 01:17[Moxxiee (C+H!) AFK] LMAO DYSLECIX
 
 
-![image](https://github.com/user-attachments/assets/7572b4e8-5b30-4489-bf6a-7240d477ebb7)
+![image](https://github.com/user-attachments/assets/1c5b147d-ac8b-4d1a-a087-68e25bed245b)
+
 
 
 Boundaries!
@@ -30,7 +30,8 @@ Boundaries!
 
 - Sometimes we might not remember you. that is because we are a different alter, possibly. If we dont remember, just give us a whisper to let us know.
 
-![image](https://github.com/user-attachments/assets/f569da84-bec9-4fb6-804e-0297236a1e3c)![image](https://github.com/user-attachments/assets/f569da84-bec9-4fb6-804e-0297236a1e3c)![image](https://github.com/user-attachments/assets/f569da84-bec9-4fb6-804e-0297236a1e3c)
+![image](https://github.com/user-attachments/assets/71bcc5eb-ee35-4300-abe3-ac5f1920ffe6)
+
 
 DNI (do not interact) list
 
