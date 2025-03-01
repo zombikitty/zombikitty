@@ -1,4 +1,6 @@
-![image](https://github.com/user-attachments/assets/18b2b03c-f1b0-481f-ad8b-fd298ecd986b)![image](https://github.com/user-attachments/assets/18b2b03c-f1b0-481f-ad8b-fd298ecd986b)![image](https://github.com/user-attachments/assets/18b2b03c-f1b0-481f-ad8b-fd298ecd986b)
+![image](https://github.com/user-attachments/assets/26a1e2ba-e6ee-4b7c-b073-0880ffe90cd6)![image](https://github.com/user-attachments/assets/53806428-4cb3-453d-a71f-ad5d95b15fff)
+
+
 
 
 ![](https://komarev.com/ghpvc/?username=zombikitty&color=ff69b4&label=♡)
