@@ -37,7 +37,8 @@ DNI (do not interact) list
 
 We dont have a proper dni, we just block freely if we dislike you.
 
-![image](https://github.com/user-attachments/assets/c63a8402-b55c-451d-a509-f58be5e82fd0)
+![image](https://github.com/user-attachments/assets/dc67c3f7-bd52-4fc4-b2bb-bb3e54f04bf5)
+
 
 
 Some of our interests;
@@ -54,8 +55,7 @@ Some of our interests;
 
 + more
 
-![image](https://github.com/user-attachments/assets/8901210e-cbbe-40f1-8779-b021abbe6128)![image](https://github.com/user-attachments/assets/a7cc6cd4-3017-4df0-93a6-b9b20f1966be)
-
+![image](https://github.com/user-attachments/assets/8901210e-cbbe-40f1-8779-b021abbe6128)
 
 
 
@@ -79,6 +79,7 @@ AND OUR DISCORD IS .zombikitty !!!
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v74xrdgiha5cc6je6xdu6rzkxm&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=823a3a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
+![image](https://github.com/user-attachments/assets/c6f6f989-6d81-4c82-9ac8-2bbb7e8d5b24)
 
 <!--
 **zombikitty/zombikitty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
