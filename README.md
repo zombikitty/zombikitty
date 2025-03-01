@@ -80,7 +80,7 @@ AND OUR DISCORD IS .zombikitty !!!
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v74xrdgiha5cc6je6xdu6rzkxm&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=823a3a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-![image](https://github.com/user-attachments/assets/c6f6f989-6d81-4c82-9ac8-2bbb7e8d5b24)![image](https://github.com/user-attachments/assets/c6f6f989-6d81-4c82-9ac8-2bbb7e8d5b24)![image](https://github.com/user-attachments/assets/c6f6f989-6d81-4c82-9ac8-2bbb7e8d5b24)
+![image](https://github.com/user-attachments/assets/c6f6f989-6d81-4c82-9ac8-2bbb7e8d5b24)![image](https://github.com/user-attachments/assets/c6f6f989-6d81-4c82-9ac8-2bbb7e8d5b24)
 <!--
 **zombikitty/zombikitty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
