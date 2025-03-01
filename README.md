@@ -17,7 +17,7 @@ Feel free to int unless dni
 01:17[Moxxiee (C+H!) AFK] LMAO DYSLECIX
 
 
-![image](https://github.com/user-attachments/assets/1c5b147d-ac8b-4d1a-a087-68e25bed245b)![image](https://github.com/user-attachments/assets/1c5b147d-ac8b-4d1a-a087-68e25bed245b)
+![image](https://github.com/user-attachments/assets/1c5b147d-ac8b-4d1a-a087-68e25bed245b)
 
 
 
