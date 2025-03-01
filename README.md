@@ -2,7 +2,7 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=zombikitty&color=2d2d2d2d&label=♡)
+![](https://komarev.com/ghpvc/?username=zombikitty&color=2d2d2d&label=♡)
 
 We're collectively known as zombikitty, if you are unsure on whos fronting dont be afraid to ask, or just call us zombi we dont rlly care lmao
 
