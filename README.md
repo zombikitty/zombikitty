@@ -7,7 +7,7 @@
 
 We're collectively known as zombikitty, if you are unsure on whos fronting dont be afraid to ask, or just call us zombi we dont rlly care lmao
 
-Current host is Jimmy,, current co-host(s) are currently varying between 6 and Curly.
+Current host is Jimmy,, current co-host(s) are currently varying between Peace and Curly.
 
 Feel free to int unless dni
 
@@ -37,6 +37,8 @@ Boundaries!
 DNI (do not interact) list
 
 We dont have a proper dni, we just block freely if we dislike you.
+
+Hazbin hotel / Helluva boss fans, dni unless we do or uf
 
 ![image](https://github.com/user-attachments/assets/dc67c3f7-bd52-4fc4-b2bb-bb3e54f04bf5)
 
