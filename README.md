@@ -4,7 +4,7 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=zombikitty&color=Green&label=♡)
+![](https://komarev.com/ghpvc/?username=zombikitty&color=green&label=♡)
 
 `` Shadows die twice ,,
 
