@@ -1,23 +1,21 @@
-![image](https://github.com/user-attachments/assets/80cdf943-bf97-4099-befd-95d638ab27fc)![image](https://github.com/user-attachments/assets/f71681a5-ebeb-4386-b23f-9a09a14a4f55)
+![image](https://github.com/user-attachments/assets/58b5939a-746e-4576-b9d9-8ea7d2ee7576)
+
 
 
 
 
 ![](https://komarev.com/ghpvc/?username=zombikitty&color=2d2d2d&label=♡)
 
-We're collectively known as zombikitty, if you are unsure on whos fronting dont be afraid to ask, or just call us zombi we dont rlly care lmao
+`` Shadows die twice ,,
 
-Current host is Jimmy,, current co-host(s) are currently varying between Peace and Curly.
+Zombikitty.
 
-Feel free to int unless dni
+Usually with friends, when not feel free to interact.
 
-01:17[sign atabook. syshost] thinks: lsoer
+Current host is Times, Co-Host is Jimmy.
 
+![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
-01:17[Moxxiee (C+H!) AFK] LMAO DYSLECIX
-
-
-![image](https://github.com/user-attachments/assets/1c5b147d-ac8b-4d1a-a087-68e25bed245b)
 
 
 
@@ -31,7 +29,7 @@ Boundaries!
 
 - Sometimes we might not remember you. that is because we are a different alter, possibly. If we dont remember, just give us a whisper to let us know.
 
-![image](https://github.com/user-attachments/assets/71bcc5eb-ee35-4300-abe3-ac5f1920ffe6)
+![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
 
 DNI (do not interact) list
@@ -40,17 +38,16 @@ We dont have a proper dni, we just block freely if we dislike you.
 
 Hazbin hotel / Helluva boss fans, dni unless we do or uf
 
-![image](https://github.com/user-attachments/assets/dc67c3f7-bd52-4fc4-b2bb-bb3e54f04bf5)
-
+![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
 
 Some of our interests;
 
+- Forsaken
+
 - Mouthwashing.
 
 - Grocery Gang
-
-- Forsaken
 
 - Pressure
 
@@ -58,11 +55,10 @@ Some of our interests;
 
 + more
 
-![image](https://github.com/user-attachments/assets/8901210e-cbbe-40f1-8779-b021abbe6128)
+![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
 
-
-OUR STRAWPAGE HAS MUCH MORE INFORMATION ON THINGS!! ^_^
+Our strawpage has more information on things about us.
 
 🟢(online): busy with friends, when there is no friends near us feel free to come on over and int!
 
@@ -74,12 +70,14 @@ OUR STRAWPAGE HAS MUCH MORE INFORMATION ON THINGS!! ^_^
 
 🎭(looking for roleplay): usually never use this, and probably never will.
 
-AND OUR DISCORD IS .zombikitty !!!
+If you would like a quicker response, DM us on discord, @.zombikitty
 
 
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v74xrdgiha5cc6je6xdu6rzkxm&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=823a3a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
 
 ![image](https://github.com/user-attachments/assets/c6f6f989-6d81-4c82-9ac8-2bbb7e8d5b24)![image](https://github.com/user-attachments/assets/c6f6f989-6d81-4c82-9ac8-2bbb7e8d5b24)
