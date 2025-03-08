@@ -70,7 +70,7 @@ Our strawpage has more information on things about us.
 
 🎭(looking for roleplay): usually never use this, and probably never will.
 
-If you would like a quicker response, DM us on discord, @.zombikitty
+If you would like a quicker response, DM us on discord, @1x1x1xone
 
 
 
