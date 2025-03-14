@@ -40,6 +40,8 @@ We dont have a proper dni, we just block freely if we dislike you.
 
 Hazbin hotel / Helluva boss fans, dni unless we do or uf
 
+BSD fandom dniucf / uid
+
 ![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
 
