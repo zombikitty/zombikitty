@@ -14,7 +14,7 @@ Usually with friends, when not feel free to interact.
 
 Current host is Times
 
-Co-Host(s) are Jimmy and C00lkidd
+Co-Host(s) are Eunoia and C00lkidd
 
 ![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
