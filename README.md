@@ -36,7 +36,7 @@ Boundaries!
 - We make kys/kms jokes, and sometimes forget tonetags. if you are an idividual who needs tonetags, please let us know before-hand.
 
 - Sometimes we might not remember you. that is because we are a different alter, possibly. If we dont remember, just give us a whisper to let us know.
-</p>
+
 
 
 <p align="center">
@@ -54,7 +54,7 @@ Hazbin hotel / Helluva boss fans, dni unless we do or uf
 BSD fandom dniucf / uid
 
 Dandys world fandom dniuf / uid
-</p>
+
 
 
 <p align="center">
@@ -76,12 +76,12 @@ Some of our interests;
 - Gorillaz
 
 + more
-</p>
+
 
 
 <p align="center">
 <img src="![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)">
-</p>
+
 
 
 <p align="center">
@@ -98,7 +98,7 @@ Our strawpage has more information on things about us.
 🎭(looking for roleplay): usually never use this, and probably never will.
 
 If you would like a quicker response, DM us on discord, @1x1x1xone
-</p>
+
 
 
 
