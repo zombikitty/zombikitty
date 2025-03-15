@@ -11,12 +11,16 @@
 <p align="center">
 `` Shadows die twice ,,
 
+<p align="center">
 Zombikitty.
 
+<p align="center">
 Usually with friends, when not feel free to interact.
 
+<p align="center">
 Current host is Eunoia
 
+<p align="center">
 Co-Host(s) are Mavis and C00lkidd
 </p>
 
@@ -29,12 +33,16 @@ Co-Host(s) are Mavis and C00lkidd
 <p align="center">
 Boundaries!
 
+<p align="center">
 - We sometimes make freaky jokes, it is never intended to harm anyone.
 
+<p align="center">
 - We have attachment issues. It isnt too bad, but at a point it can.
 
+<p align="center">
 - We make kys/kms jokes, and sometimes forget tonetags. if you are an idividual who needs tonetags, please let us know before-hand.
 
+<p align="center">
 - Sometimes we might not remember you. that is because we are a different alter, possibly. If we dont remember, just give us a whisper to let us know.
 
 
@@ -47,12 +55,16 @@ Boundaries!
 <p align="center">
 DNI (do not interact) list
 
+<p align="center">
 We dont have a proper dni, we just block freely if we dislike you.
 
+<p align="center">
 Hazbin hotel / Helluva boss fans, dni unless we do or uf
 
+<p align="center">
 BSD fandom dniucf / uid
 
+<p align="center">
 Dandys world fandom dniuf / uid
 
 
@@ -65,16 +77,22 @@ Dandys world fandom dniuf / uid
 <p align="center">
 Some of our interests;
 
+<p align="center">
 - Forsaken
 
+<p align="center">
 - Mouthwashing.
 
+<p align="center">
 - Grocery Gang
 
+<p align="center">
 - Pressure
 
+<p align="center">
 - Gorillaz
 
+<p align="center">
 + more
 
 
@@ -97,6 +115,7 @@ Our strawpage has more information on things about us.
 
 🎭(looking for roleplay): usually never use this, and probably never will.
 
+<p align="center">
 If you would like a quicker response, DM us on discord, @1x1x1xone
 
 
