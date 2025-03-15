@@ -1,8 +1,11 @@
+
+<p align="center">
 ![](https://komarev.com/ghpvc/?username=zombikitty&color=bec9d4&label=♡)
+</p>
 
 <p align="center">
 ![image](https://github.com/user-attachments/assets/31536813-028e-4003-b313-04f222672142)
-
+</p>
 
 
 
