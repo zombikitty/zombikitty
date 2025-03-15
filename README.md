@@ -21,6 +21,7 @@ Co-Host(s) are Mavis and C00lkidd
 
 <p align="center">
 ![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
+</p>
 
 
 
@@ -37,6 +38,7 @@ Boundaries!
 
 <p align="center">
 ![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
+</p>
 
 
 DNI (do not interact) list
@@ -51,6 +53,7 @@ Dandys world fandom dniuf / uid
 
 <p align="center">
 ![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
+</p>
 
 
 Some of our interests;
@@ -69,6 +72,7 @@ Some of our interests;
 
 <p align="center">
 ![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
+</p>
 
 
 Our strawpage has more information on things about us.
@@ -92,3 +96,4 @@ If you would like a quicker response, DM us on discord, @1x1x1xone
 
 <p align="center">
 ![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
+</p>
