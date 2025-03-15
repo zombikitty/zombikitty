@@ -12,7 +12,7 @@ Zombikitty.
 
 Usually with friends, when not feel free to interact.
 
-Current host is Times
+Current host is Eunoia
 
 Co-Host(s) are Mavis and C00lkidd
 
