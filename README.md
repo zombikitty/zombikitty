@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=zombikitty&color=ff89ae&label=♡)
+![](https://komarev.com/ghpvc/?username=zombikitty&color=bec9d4&label=♡)
 
 ![image](https://github.com/user-attachments/assets/31536813-028e-4003-b313-04f222672142)
 
@@ -84,6 +84,6 @@ If you would like a quicker response, DM us on discord, @1x1x1xone
 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v74xrdgiha5cc6je6xdu6rzkxm&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=823a3a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v74xrdgiha5cc6je6xdu6rzkxm&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=bec9d4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
