@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=zombikitty&color=ff89ae&label=♡)
+
 ![image](https://github.com/user-attachments/assets/31536813-028e-4003-b313-04f222672142)
 
 
@@ -5,7 +7,7 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=zombikitty&color=ff89ae&label=♡)
+
 
 `` Shadows die twice ,,
 
