@@ -19,7 +19,8 @@ Current host is Eunoia
 
 Co-Host(s) are Mavis and C00lkidd
 
-<p align="center">![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
+<p align="center">
+![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
 
 
@@ -34,7 +35,8 @@ Boundaries!
 
 - Sometimes we might not remember you. that is because we are a different alter, possibly. If we dont remember, just give us a whisper to let us know.
 
-<p align="center">![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
+<p align="center">
+![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
 
 DNI (do not interact) list
@@ -47,7 +49,8 @@ BSD fandom dniucf / uid
 
 Dandys world fandom dniuf / uid
 
-<p align="center">![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
+<p align="center">
+![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
 
 Some of our interests;
@@ -64,7 +67,8 @@ Some of our interests;
 
 + more
 
-<p align="center">![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
+<p align="center">
+![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
 
 Our strawpage has more information on things about us.
@@ -86,4 +90,5 @@ If you would like a quicker response, DM us on discord, @1x1x1xone
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31v74xrdgiha5cc6je6xdu6rzkxm&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=bec9d4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<p align="center">![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
+<p align="center">
+![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
