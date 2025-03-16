@@ -22,7 +22,7 @@ Current host is Eunoia
 Co-Host(s) are Mavis and C00lkidd
 
 
-<img src="![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)">
+![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
 
 
 Boundaries!
