@@ -17,9 +17,9 @@ Zombikitty.
 
 Usually with friends, when not feel free to interact.
 
-Current host is Eunoia
+Current host is Mavis.
 
-Co-Host(s) are Mavis and C00lkidd
+Co-Host is Eunoia
 
 
 ![image](https://github.com/user-attachments/assets/c790c61c-c074-44eb-9069-fee95071813f)
